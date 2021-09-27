@@ -1,1 +1,1 @@
-- 👋 Hi, I’m TK INDUSTRIES
+ Hi, I’m TK INDUSTRIES
